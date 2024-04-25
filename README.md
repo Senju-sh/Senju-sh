@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻・Developer since 2017<br>💵・Making money is so easy with laptop<br>🎵・[#1 SC4M Playlist on 🇫🇷](https://open.spotify.com/playlist/7EKz6o69IJ7PVszwQPQ2O7)
+💻・Developer since 2017<br>👑・Linux Enjoyer<br>🎵・[MY PLAYLIST](https://open.spotify.com/playlist/7EKz6o69IJ7PVszwQPQ2O7)
 
 
 ## 🌐 Socials:
