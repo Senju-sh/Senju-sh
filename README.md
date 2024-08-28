@@ -1,7 +1,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Courgette&size=30&pause=1000&color=F7F7F7&random=false&width=435&lines=I'm+Senju+%F0%9F%92%8E)](https://git.io/typing-svg)
----
+
 
 💫 About Me :
+---
 [💻・Developer since 2017](https://telegram.org/)<br>[👑・Linux Enjoyer](https://archlinux.org/download/)<br>[🎵・MY PLAYLIST](https://open.spotify.com/playlist/7EKz6o69IJ7PVszwQPQ2O7)
 
 
