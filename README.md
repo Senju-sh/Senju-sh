@@ -3,8 +3,7 @@
 
 🧽 About Me :
 ---
-[💻・Developer since 2017](https://telegram.org/)<br>[👑・Linux Enjoyer](https://archlinux.org/download/)<br>[🎵・MY PLAYLIST](https://open.spotify.com/playlist/7EKz6o69IJ7PVszwQPQ2O7)
-
+[💻・Linux Enjoyer](https://archlinux.org/download/)
 
 🍜 Socials :
 ---
